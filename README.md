@@ -1,2 +1,0 @@
-# PoweredBy_Soomro-
-shahzaib
